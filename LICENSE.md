@@ -1,4 +1,4 @@
-#  
+#  vip king legacy Scripts is the best king legacy Script, featuring undetectable and invisibility. Safe and powerful for all your needs.
 
 
 
